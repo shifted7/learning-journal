@@ -1,0 +1,3 @@
+# Learning Journal 4
+
+I have a few different motivations for learning, but they all come down to one thing: improving myself. I want to learn so that I can create, because I can create things that help me and others, and that is one way to improve. I want to be able to express myself, because sharing what I think, feel, and aspire to is another way to improve. And I want to further my skills so an employer can see my potential, and I can improve via the resources I have from my career. So self-improvement is my driving force for learning, and that means I should take every opportunity I can to expand what I can do.
